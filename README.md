@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+My Resume : https://www.canva.com/design/DAGgwDfy9r8/e8Z2XQfac0atI8v7867LMQ/view?utm_content=DAGgwDfy9r8&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h37843ad6aa
 <!--
 **0xDilemma/0xDilemma** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
