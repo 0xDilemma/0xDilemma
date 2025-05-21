@@ -1,4 +1,4 @@
-![S__23429122](https://github.com/user-attachments/assets/f13dcff8-005c-4208-a1db-1b43e2761d3f)## Hi there 👋, I am Andy Lee.
+## Hi there 👋, I am Andy Lee.
 My Resume : https://www.canva.com/design/DAGgwDfy9r8/e8Z2XQfac0atI8v7867LMQ/view?utm_content=DAGgwDfy9r8&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h37843ad6aa
 ![S__23429122](https://github.com/user-attachments/assets/0bd4d2b1-bc1a-46bb-8464-094b2c783697)
 
